@@ -1,1 +1,0 @@
-# Kharido_Bhidu
